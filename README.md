@@ -3,6 +3,6 @@
       I also have basic knowledge of cyber security
 - 📫 You can contact me by email or with my discord
 
-      ╰┈➤ Discord: tototutytre_27
-      ╰┈➤ Email: toml.pro@botly.store
+      ╰┈➤ Discord: In4ctif_
+      ╰┈➤ Email: toml.pro@botly.fr
 - 😄 Pronouns: he/him
